@@ -1,1 +1,1 @@
-# 2026-Multidisciplinary-Arts-Archive
+# 2026-Arts-Archive
